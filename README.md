@@ -1,0 +1,2 @@
+# farangthaicom
+AffiliateMe site: farangthaicom
